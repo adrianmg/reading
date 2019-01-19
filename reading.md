@@ -11,4 +11,8 @@ Books that I have read or I'm planning to read starting in 2018.
 
 ## Wand to read
 
+*“Masters of DOOM”*
+
 *“The Subtle Art of Not Giving a F\*ck”*
+
+*“Start with Why”*
