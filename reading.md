@@ -1,8 +1,8 @@
 # Reading list
 
-I'm sharing the books that I read or I'm planning to read at some point.
+Books that I have read or I'm planning to read starting in 2018.
 
-### Reading list 2018
+## Reading list 2018
 
 *“Getting to Yes”* ```Reading```
 
