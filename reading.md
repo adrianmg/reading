@@ -1,11 +1,11 @@
 # Reading list
 
-Books that I have read or I'm planning to read starting in 2018.
+Books that I have read or I'm planning to read 🙏.
 
-## Read in 2019
+## Books in 2019
 *“The Making of a Manager”* ```Reading```
 
-## Read in 2018
+## Books in 2018
 
 *“Getting to Yes”* ```Reading```
 — ★★★★
