@@ -19,6 +19,10 @@ Books that I have read or I'm planning to read 🙏.
 
 *“Resilient Management”*
 
+*“Burnout: The Secret to Solving the Stress Cycle”*
+
+*“The Manual: A Philosopher's Guide to Life”*
+
 *“Masters of DOOM”*
 
 *“The Subtle Art of Not Giving a F\*ck”*
