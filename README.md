@@ -13,7 +13,7 @@ Books that I have read or I'm planning to read 🙏.
 *“It Doesn't Have to Be Crazy at Work”*
 — ★★★★★
 
-### Wand to read
+### Wish list
 
 *“Writing for Designers”*
 
