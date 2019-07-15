@@ -7,7 +7,7 @@ Books that I have read or I'm planning to read 🙏.
 
 ## Books in 2018
 
-*“Getting to Yes”* ```Reading```
+*“Getting to Yes”*
 — ★★★★
 
 *“It Doesn't Have to Be Crazy at Work”*
