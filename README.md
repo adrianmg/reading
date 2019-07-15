@@ -2,10 +2,10 @@
 
 Books that I have read or I'm planning to read 🙏.
 
-## Books in 2019
+### Books in 2019
 *“The Making of a Manager”* ```Reading```
 
-## Books in 2018
+### Books in 2018
 
 *“Getting to Yes”*
 — ★★★★
@@ -13,7 +13,7 @@ Books that I have read or I'm planning to read 🙏.
 *“It Doesn't Have to Be Crazy at Work”*
 — ★★★★★
 
-## Wand to read
+### Wand to read
 
 *“Writing for Designers”*
 
