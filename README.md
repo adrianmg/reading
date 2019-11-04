@@ -30,3 +30,9 @@ Books that I have read or I'm planning to read 🙏.
 *“Start with Why”*
 
 *“Why We Sleep”*
+
+*“Managing Humans Humorous Software Engineering”*
+
+*“Five Dysfunctions Team Leadership Fable”*
+
+*“Radical Candor”*
