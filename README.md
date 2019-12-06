@@ -36,3 +36,9 @@ Books that I have read or I'm planning to read 🙏.
 *“Five Dysfunctions Team Leadership Fable”*
 
 *“Radical Candor”*
+
+*“The ABCs of How We Learn: 26 Scientifically Proven Approaches, How They Work, and When to Use Them”*
+
+*“How children fail”*
+
+*“Mindstorms: Children, Computers, And Powerful Ideas”*
